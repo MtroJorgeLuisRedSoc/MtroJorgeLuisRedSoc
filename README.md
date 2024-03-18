@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MtroJorgeLuisRedSoc
-- 👀 I’m interested in ... Leer.
+- 👀 I’m interested in ... Aprende y conocer nuevas cosas.
 - 🌱 I’m currently learning ... Tecnologías Educativas.
 - 💞️ I’m looking to collaborate on ... Educación Media Superior.
 - 📫 How to reach me ...
