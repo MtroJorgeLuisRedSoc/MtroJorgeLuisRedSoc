@@ -1,3 +1,4 @@
+<img src="Green Mint Animated Doodle Marketing Social Media Presentation.png">
 - 👋 Hi, I’m @MtroJorgeLuisRedSoc
 - 👀 I’m interested in ... Aprende y conocer nuevas cosas.
 - 🌱 I’m currently learning ... Tecnologías Educativas.
